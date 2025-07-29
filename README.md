@@ -1,0 +1,1 @@
+# Plataformas_Analitica_Negocios_2025
